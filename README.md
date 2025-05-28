@@ -1,4 +1,4 @@
-# 🚀 Meet Team AI Developers of HackVertex 2025 | AI Rasoi: Recipe GPT with a Desi Twist 🇮🇳🥘
+# 🚀 Meet Team AI Innovators of HackVertex 2025 | AI Rasoi: Recipe GPT with a Desi Twist 🇮🇳🥘
 
 ## 👋 Who We Are
 
